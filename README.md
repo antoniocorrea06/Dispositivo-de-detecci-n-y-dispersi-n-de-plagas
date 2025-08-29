@@ -1,0 +1,1 @@
+# Dispositivo-de-detecci-n-y-dispersi-n-de-plagas
